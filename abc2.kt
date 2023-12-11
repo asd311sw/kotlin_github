@@ -1,4 +1,3 @@
 asdasdasd
 assadasdasdssssss
-1sssssssssssssss223444
-asdasdasdasdasd
+ㅋㅋㅋㅋㅋㅋㅋㅋㅋㅋㅋㅋㅋ
