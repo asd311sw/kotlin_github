@@ -1,8 +1,6 @@
-타타타타ㅏ타타탙
-나나나난
-ㅁㄴㅇㅁㄴㅇㅁㄴㅇ
-ㅁㄴㅇㅁㅇㄴㄴㄴㅁㅇ
-ㅁㄴㅇㅁㄴㅇㅁㄴㅇㅁㄴㅇㅁ
-asdasdasd
-
-asdasd
+bbbbbbbbb
+bbbbbbbbbbb
+bbbbbbb
+bbbbbbbbbbbb
+bbbbbbbb
+bbbbbbbbbbb

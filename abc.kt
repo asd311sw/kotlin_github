@@ -1,10 +1,5 @@
-asdasdsdasdasdasd
-asdasdsdasdasdasd
-나나나나나난나ㅏㄴ
-마마마마마마마마마
-다다다다다다다다다다다
-ㅏ타타타타타타타탙타타
-asdasdasdasdasda
-asdasdasdasdasdasadasd
-안녕하세요. 반갑습니다.
+sdasdassdadasdsad
+asdasdasdasdasdasdasd
+asdasdasdasdasdasdasdassdasd
+asdasdasdasdasdasdasd
 asdasdasd
